@@ -13,4 +13,3 @@ Meu nome é Thallia G Bello
   @aahillt_
 
 ![](https://media.tenor.com/k7v9dZiw6rsAAAAi/hello-kitty.gif)
-  
